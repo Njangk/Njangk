@@ -1,0 +1,2 @@
+# Njangk
+Gunakan dengan Bijak 
